@@ -14,6 +14,6 @@ When should we chant shiv tandav stotram and how can this benefit us?
         3) Pradosh Vrat: Pradosh Kaal is the time of the month that falls on the 13th day and is also known as Trayodashi tithi. This tithi falls fortnightly. It is said that chanting Shiva Tandava Stotram on every Trayodashi tithi helps burn sins. Note that Pradosh Kaal varies according to different locations.
 
 How to learn shiv tandav stotram
-It is important to chant this mantra in the right way. These days, many just recite the mantra in a hurry without understanding the meaning and the correct pronunciation.
+    It is important to chant this mantra in the right way. These days, many just recite the mantra in a hurry without understanding the meaning and the correct pronunciation.
 
-To learn Shiv Tandav Stotram, you must first listen to it 5-6 times to understand the meaning and pronunciation. After listening, keep practicing and playing the stotram simultaneously. It is recommended to learn the stotram while singing, as it will help you remember it quickly.
+        To learn Shiv Tandav Stotram, you must first listen to it 5-6 times to understand the meaning and pronunciation. After listening, keep practicing and playing the stotram simultaneously. It is recommended to learn the               stotram while singing, as it will help you remember it quickly.
